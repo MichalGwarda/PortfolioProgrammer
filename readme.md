@@ -8,8 +8,7 @@ Umysł analityczny – uważam, że potrafię analizować i wyciągać logiczne 
 Pracowałem w kilku różnych branżach także doświadczenia mam bardzo różne.
 Od dłuższego czasu przyglądam się branży IT, szukam pierwszej poważnej pracy lub stażu, gdzie mógłbym wykazać swoją przydatność i obrać odpowiedni kierunek rozwoju.
 
-Aktualnie realizuję program [szkolenia Przyszły Programista](https://rekrutacja.przyszlyprogramista.pl/?utm_source=menu&utm_medium=pp&utm_campaign=x&gclid=CjwKCAjwpayjBhAnEiwA-7ena8KFpbOY3Ps2ybMZ0yY5ondcJD5raJCKihfVrQWrPy8idslhvVJk2xoCMV8QAvD_BwE#:~:text=Czego%20dok%C5%82adnie%20si%C4%99%20nauczysz)
-Wybrałem ten kurs ponieważ jego program nie uczy jedynie wybranego języka programowania lecz podchodzi holistycznie do tematu pracy programisty.
+Aktualnie realizuję program [szkolenia Przyszły Programista](https://rekrutacja.przyszlyprogramista.pl/?utm_source=menu&utm_medium=pp&utm_campaign=x&gclid=CjwKCAjwpayjBhAnEiwA-7ena8KFpbOY3Ps2ybMZ0yY5ondcJD5raJCKihfVrQWrPy8idslhvVJk2xoCMV8QAvD_BwE#:~:text=Czego%20dok%C5%82adnie%20si%C4%99%20nauczysz). Wybrałem ten kurs ponieważ jego program nie uczy jedynie wybranego języka programowania lecz podchodzi holistycznie do tematu pracy programisty.
 
 
 
